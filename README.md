@@ -1,2 +1,2 @@
 link:
-https://www.youtube.com/channel/UCPoKK7MxslmffCbKY6jetEA
+https://youtu.be/i0dWVpEdowg
